@@ -70,5 +70,5 @@
 
 ## 📬 Connect with Me
 📩 Email: riyamittu2004@gmail.com <br>
-📘 LinkedIn: [Riya Menon](www.linkedin.com/in/riya-menon-553951359)  
+📘 LinkedIn: [Riya Menon] www.linkedin.com/in/riya-menon-553951359 
 
